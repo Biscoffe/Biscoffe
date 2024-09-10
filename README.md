@@ -1,1 +1,1 @@
-![hippo](https://media1.tenor.com/m/F0jSvMUIlj4AAAAd/dedf1sh-splatoon.gif) ![hippo](https://media1.tenor.com/m/OlHMWq46CtAAAAAC/serial-experiments-lain-lain.gif)
+![hippo](https://media.tenor.co/images/1afddcf6a936389bf62b003e0e7cbb0d/raw)
