@@ -1,1 +1,1 @@
-![hippo](<div class="tenor-gif-embed" data-postid="5134541310718894342" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/gene-aphmau-gene-aphmau-gif-5134541310718894342">Gene Aphmau GIF</a>from <a href="https://tenor.com/search/gene-gifs">Gene GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>)
+![hippo](https://tenor.com/bJCMi.gif)
